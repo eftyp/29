@@ -1,0 +1,8 @@
+---
+layout: post
+permalink: /mimpi-ular-cincin-emas/
+categories:
+    - Uncategorized
+---
+
+[Baca Selengkapnya](/02)
